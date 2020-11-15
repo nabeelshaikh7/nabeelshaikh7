@@ -28,6 +28,6 @@ Here are some ideas to get you started:
 >
 >my blog : https://nabeelshaikh.xyz/
 >
->my webpage : https://nabeelshaikh.github.io
+>my webpage : https://nabeelshaikh.github.io (alternate url if this is not working :https://nabeelshaikh7.vercel.app )
 
 
