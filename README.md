@@ -21,11 +21,11 @@ Here are some ideas to get you started:
 >i am still in 9 grade . And i am a dumb 14 year old who likes coding and gaming . and no i dont like fortnite nor pubg mobile.
 >i play mostly minecraft , pubg pc lite , valorant , csgo and gta 4 .(because these are the only games my laptop can handle ).
 
-my discord id is NABEEL_SHAIKH #1871
-you can contact me there.
-
-thanks :D
-
+>my discord id is NABEEL_SHAIKH #1871
+>you can contact me there.
+>
+>thanks :D
+>
 >my blog : https://nabeelshaikh.xyz/
 
 >my webpage : https://nabeelshaikh.github.io
