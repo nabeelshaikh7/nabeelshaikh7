@@ -26,7 +26,7 @@ Here are some ideas to get you started:
 >
 >thanks :D
 >
->my blog : https://nabeelshaikh.xyz/
+>my blog : https://nabeel.codes
 >
 >my webpage : https://nabeelshaikh.me (alternate url if this is not working :https://nabeelshaikh7.vercel.app )
 
