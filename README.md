@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 > My name is nabeel shaikh . And I am a beginner at coding. I have built a website before (not a personal one but a professional one ) 
 > for my 'so called business' [Unlimited Free Hosting](https://unlimitedfree.host) .(PLEASE GIVE THAT WEBSITE A VISIT). 
 >
->i am still in 9 grade . And i am just a 14 year old who likes programming and gaming . and no i dont like fortnite nor pubg mobile.
+>I am just a 15 year old who likes programming and gaming . and no i dont like fortnite nor pubg mobile.
 >i play mostly minecraft , pubg pc lite , valorant , csgo and gta 4 .(because these are the only games my laptop can handle ).
 >
 >my discord id is NABEEL_SHAIKH #1871
